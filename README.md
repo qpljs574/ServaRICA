@@ -1,4 +1,4 @@
-# ServaRICA优惠码和2024年最新ServaRICA特价云服务器活动整理
+# ServaRICA优惠码和2025年最新ServaRICA特价云服务器活动整理
 
 ## ServaRICA 介绍
 
